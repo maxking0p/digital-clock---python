@@ -1,1 +1,4 @@
-# ditigal-clock---python
+# digital-clock---python
+
+# Follow me on instagram @maxkingop
+#
