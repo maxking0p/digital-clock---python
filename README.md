@@ -1,4 +1,4 @@
 # digital-clock---python
 
-# Follow me on instagram @maxkingop
+# thank you and best of luck! for whatever you wanna be in youe life.
 #
